@@ -1,5 +1,5 @@
 ## Hola, soy María Luisa 😄
-#### Ingeniera Informática en Tencologías Informáticas.** 
+#### Ingeniera Informática en Tencologías Informáticas.
 Centrada en mi vida laboral y con muchas ganas de seguir aprendiendo y formándome al máximo.
 
 * **Email:** 📫 18mluisarc@gmail.com
